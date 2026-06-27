@@ -149,9 +149,9 @@ Building intelligent software and AI products that solve real-world problems.
 
 <p align="left">
 
-📧 **Email:** your-email@example.com
+📧 **Email:** sidheswar595@gmail.com
 
-💼 **LinkedIn:** https://linkedin.com/in/your-profile
+💼 **LinkedIn:** https://www.linkedin.com/in/sidheswar-sahoo-7b1b50291/
 
 🌐 **Portfolio:** Coming Soon 🚀
 
